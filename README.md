@@ -23,4 +23,8 @@ imágenes para Bleux
 ![2](https://user-images.githubusercontent.com/23465376/78283328-dac11180-74da-11ea-8b2e-1f4154009ad4.png)
 ![3](https://user-images.githubusercontent.com/23465376/78283331-db59a800-74da-11ea-8b88-57953529ea5f.png)
 
+![15909](https://user-images.githubusercontent.com/23465376/78289761-e7943400-74df-11ea-8360-875e13129955.jpg)
+![2994](https://user-images.githubusercontent.com/23465376/78289847-04306c00-74e0-11ea-8f86-4f5d62f9ecd4.jpg)
+![10207](https://user-images.githubusercontent.com/23465376/78289927-20cca400-74e0-11ea-9314-43def55ef94e.jpg)
+
 
